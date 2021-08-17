@@ -1,1 +1,0 @@
-# infosysmw.github.io
